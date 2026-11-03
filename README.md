@@ -1,4 +1,4 @@
-# EspecialistaVendasTractian
+# EspecialistaVendasTractian - Link: https://notebook.google.com/notebook/11c75c11-01ed-4151-a8f6-50004d086e86
 
 Segundo cérebro sobre vendas consultivas voltadas para a empresa Tractian, com fontes confiáveis em vídeo e em texto.
 
